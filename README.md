@@ -30,7 +30,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with finding my next long-term technical product management role.
 - 💬 Ask me about product management, crypto, trading, digital design, semiconductors, hardware security
 - 📫 How to reach me: guvenkip@berkeley.edu
-- - 😄 Pronouns: he/him/his
+- 😄 Pronouns: he/him/his
 - ⚡ Interests: Yoga, hiking, swimming, photography, deep-tech, trading, finance 
 ### 📫 Let's connect
 https://www.linkedin.com/in/guvenkip/
